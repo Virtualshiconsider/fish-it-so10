@@ -1,4 +1,4 @@
-
+escape tsunami for brainrots Scripts stealth offers the most advanced escape tsunami for brainrots Script, with auto-upgrade and one-hit kill.
 
 
 
